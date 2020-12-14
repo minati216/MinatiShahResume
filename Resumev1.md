@@ -1,5 +1,10 @@
 MINATI SHAH
 ============
+
+Mountain View, CA 94040 ❖ 510-295-5800 ❖ minati216@gmail.com
+
+Analytical Program Manager who enjoys problem solving by empathizing with users and analyzing data with a passion for design
+
 -----------
 SKILLS
 -----------
